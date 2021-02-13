@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Victor Grazinski
+- 🌱 I’m currently learning to sing
